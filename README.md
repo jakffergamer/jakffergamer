@@ -1,5 +1,5 @@
 - 👋 hola, soy @jakffergamer
-- 👀 me interesa ... programar,jugar,chambear
+- 👀 me interesa ... programar,jugar y chambear
 - 🌱 actualmente estoy aprendiendo ... programacion
-- 📫 como cantactarme ...collantescorreaj@gmail.com
+- 📫 como cantactarme ... collantescorreaj@gmail.com
 
